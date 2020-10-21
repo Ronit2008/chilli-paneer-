@@ -1,0 +1,1 @@
+ Ingredients (1 cup = 240ml ) 200 grams paneer (cubed to ¾ by ¾ inch pieces) ¼ teaspoon red chilli powder (kashmiri or less spicy kind) (optional) 3 tablespoons cornstarch (white corn flour) 3 tablespoons all-purpose flour (maida) (optional) ⅛ teaspoon black pepper (crushed or ground) ⅛ teaspoon salt (adjust to taste)
